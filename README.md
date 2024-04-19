@@ -1,2 +1,2 @@
 # imagenesGrua.github.io
-señales gr{ua
+señales grúa
